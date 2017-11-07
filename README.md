@@ -3,19 +3,4 @@
 
 Created by:Elisheba Wiggins
 
-7/30/2017
-Tickets in Release
 
-1
-2
-3
-4
-5
-
-heyyyyyyyyyyyyyyyy
-
-6
-7
-8
-9
-10
